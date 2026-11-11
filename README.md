@@ -1,0 +1,1 @@
+# mamandygym-maktanyshym-11synyp
